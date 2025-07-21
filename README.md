@@ -1,1 +1,0 @@
-# marukiyastudio.github.io
